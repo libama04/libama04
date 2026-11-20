@@ -20,4 +20,4 @@
 
 ## Contact
 
-[LinkedIn](https://www.linkedin.com/qr/AQDLbSXI5b28OnKBmzKO1d_AVPfJBzw-j9J5ieAeMHbLVhqH?trkCode=wallet)
+[LinkedIn](https://www.linkedin.com/in/paul-david-libama-dubos-181b3a29a)
