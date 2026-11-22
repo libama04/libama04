@@ -20,4 +20,4 @@
 
 ## Contact
 
-[LinkedIn](https://www.linkedin.com/in/paul-david-libama-dubos-181b3a29a)
+[LinkedIn](https://www.linkedin.com/in/paul-david-libama-dubos)
